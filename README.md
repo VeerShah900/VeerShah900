@@ -5,4 +5,5 @@
 - 📫 How to reach me ;mail me at bloggerwins1@gmail.com
 - 😃 I am also a blogger ..
 - 👦 Pronoun - he/him 
-- 💬 Ask me about latest technologies like AI, ML, DL and other hardware & software.
+- 🤡 Follow me or I will hack your system..
+- 🦠 I have created a potentially harmless virus which takes a lot memory.So if you have less memory on your device this is harmless to some extent..😱☠
