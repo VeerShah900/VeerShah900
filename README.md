@@ -2,7 +2,6 @@
 - 👀 I’m interested in programing and coding with java,python,javascript,html and css..
 - 🌱 I’m currently learning advanced javascript , python also jar files and java swing class...
 - 👯 I’m looking to collaborate on website building projects with cool animations 
-- 📫 How to reach me ;mail me at bloggerwins1@gmail.com
 - 😃 I am also a blogger ..
 - 👦 Pronoun - he/him 
 - 🤡 Follow me or I will hack your system..
